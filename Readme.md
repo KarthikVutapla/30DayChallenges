@@ -6,3 +6,5 @@ This is where i will be writing down all my ideas regarding the 30 day challenge
 
 30/06/2008
 YOOOO I got 2 more books (Siddartha and 1984) so i can make videos on that too, and i went to Bahrisons Booksellers that was so good i acn make videos on that tooo!!!
+
+# 3. Switching my phone screentime with reading time for a week ( i want to do this)
