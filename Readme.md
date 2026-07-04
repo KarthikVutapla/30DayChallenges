@@ -10,3 +10,5 @@ YOOOO I got 2 more books (Siddartha and 1984) so i can make videos on that too, 
 # 3. Switching my phone screentime with reading time for a week ( i want to do this)
 
 # 4. Something about marcin, I wanna learn some song
+
+streak broken bhai i was 1 min late shit
