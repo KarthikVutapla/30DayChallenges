@@ -12,3 +12,5 @@ YOOOO I got 2 more books (Siddartha and 1984) so i can make videos on that too, 
 # 4. Something about marcin, I wanna learn some song
 
 streak broken bhai i was 1 min late shit
+
+gotta edit those bharisons videos too!!!
