@@ -14,3 +14,5 @@ YOOOO I got 2 more books (Siddartha and 1984) so i can make videos on that too, 
 streak broken bhai i was 1 min late shit
 
 gotta edit those bharisons videos too!!!
+
+yeah forget it im not gonna do any im not gonna buy that mac also 
