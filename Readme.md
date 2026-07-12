@@ -22,3 +22,5 @@ i dont know bro so much confusion
 i wanna get back to ts i will start doing these bro i can't get low, i have to have that spark no matter what and work hard no matter how hard life gets because these 30 days don't care about my feelings or conditions
 
 I need to prolly rename ts i am just spamming shit here to get my heatmap running
+
+i started journalling so thats crazy
