@@ -24,3 +24,5 @@ i wanna get back to ts i will start doing these bro i can't get low, i have to h
 I need to prolly rename ts i am just spamming shit here to get my heatmap running
 
 i started journalling so thats crazy
+
+i got a new poetry book crazy I'll have to do for that also
