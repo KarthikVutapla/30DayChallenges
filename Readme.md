@@ -26,3 +26,5 @@ I need to prolly rename ts i am just spamming shit here to get my heatmap runnin
 i started journalling so thats crazy
 
 i got a new poetry book crazy I'll have to do for that also
+
+# I wanna build a phone!!!
