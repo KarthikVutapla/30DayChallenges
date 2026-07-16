@@ -28,3 +28,5 @@ i started journalling so thats crazy
 i got a new poetry book crazy I'll have to do for that also
 
 # I wanna build a phone!!!
+
+# i wanna start wood carving making a chessboard with pieces
